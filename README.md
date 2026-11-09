@@ -2,7 +2,7 @@
 
 **Performance marketing & growth lead.** I audit ad spend, then build what happens after the click: lead routing, WhatsApp follow-up, order confirmation and the automation that keeps it honest.
 
-Assistant Project Manager, Marketing at **[Humantek](https://humantek.co)**, Karachi. I lead a six-discipline team and own paid media strategy and budgets across client accounts.
+Assistant Project Manager, Marketing at **[Humantek](https://thehumantek.com)**, Karachi. I lead a six-discipline team and own paid media strategy and budgets across client accounts.
 
 ---
 
